@@ -1,0 +1,1 @@
+# sehtak-fi-daqiqa
